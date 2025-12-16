@@ -1,2 +1,0 @@
-# FloresEternas
-Emprendimiento Jessica
